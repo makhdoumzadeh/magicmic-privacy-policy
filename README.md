@@ -1,0 +1,1 @@
+# magicmic-privacy-policy
